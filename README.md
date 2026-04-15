@@ -34,7 +34,7 @@
 
 ,
 
-- My favorite ships are
+ < Favorite ships >
 
 - Devsuer
 
