@@ -6,7 +6,7 @@
 
 ,
 
-- Pronouns : Any but perfer She/Her.
+- Pronouns : She/Her.
 
 ,
 
