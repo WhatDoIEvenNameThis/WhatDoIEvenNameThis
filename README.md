@@ -8,6 +8,8 @@
 
 - Pronouns : She/Her.
 
+- I am Aroace .
+
 ,
 
 -   Fandoms :
@@ -53,8 +55,6 @@
 ,
 
 - I mainly like small freind groups .
-
-- I'm Aroace but dosen't mean I don't WANT to be in a relationship .
 
 - My only language is English and I only know small words of Spanish and French .
 
