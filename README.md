@@ -62,8 +62,6 @@
 
 - I'm homeschooled .
 
-- I love to read and am trying to be a writer one day .
-
 ,
 
 (Idk what else to put but thx for taking your time to read this if you did :D)
