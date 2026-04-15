@@ -48,6 +48,8 @@
 
 - Avoidful
 
+- VanityPursuer (more of a crackship but wtv)
+
 - and Buildermon
 
 ,
