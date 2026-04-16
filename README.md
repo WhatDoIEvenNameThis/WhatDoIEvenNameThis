@@ -42,6 +42,8 @@
 
 - Avoidsuer
 
+- GloryBringer
+
 - DigniZuka
 
 - Devestful
