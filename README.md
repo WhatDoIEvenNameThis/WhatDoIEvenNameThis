@@ -8,7 +8,7 @@
 
 - Pronouns : She/Her.
 
-- I am Aroace .
+- Aroace .
 
 ,
 
