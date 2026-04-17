@@ -42,3 +42,11 @@
 ,
 
 (Idk what else to put but thx for taking your time to read this if you did :D)
+
+
+
+,
+
+
+<img width="682" height="811" alt="Screenshot_20260416_194536_Chrome" src="https://github.com/user-attachments/assets/6bfef260-552b-40b5-a811-7161a80ca796" />
+
